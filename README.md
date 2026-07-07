@@ -1,2 +1,3 @@
 # Mega Buana
-Mega Buana | Choreographer &amp; Performance Artist Exploring embodied relationality through choreographic research
+Choreographer &amp; Performance Artist 
+Exploring embodied relationality through choreographic research
